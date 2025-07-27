@@ -100,5 +100,5 @@ Efficiently managing our time became crucial to meet project deadlines.
 
 For questions or feedback, please contact: nihalshaikh.analyst@gmail.com
 
---thank yoy....
+--thank you....
 
